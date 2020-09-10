@@ -41,4 +41,4 @@ camp không :v
 "Olympus Pen EE3, I hope that you will still bring me the joy of seeing, shedding light on the poetry of daily banality."
 
 
-Cảm ơn mọi người đã đọc bài :)) <i class="em em-kissing_smiling_eyes" aria-role="presentation" aria-label="KISSING FACE WITH SMILING EYES"></i>
+Cảm ơn mọi người đã đọc bài :)) 
