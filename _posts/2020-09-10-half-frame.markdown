@@ -12,7 +12,7 @@ Thói quen, tớ la liếm research trên mạng, đọc và hiểu cách dùng 
 
 Với khoản tiết kiệm còn dư, tớ đã "trộm" một em Olympus Pen EE3 để thử cảm giác mới hơn với việc chụp phim, với chiếc máy ảnh full cơ và zone focus, ngầu và đẹp trai hơn nữa :)). (ban đầu tớ định đặt Olympus Pen S nhưng chả biết vì lý do gì tớ đã mua Olympus Pen EE3.)
 
-![penee3](http://{{ site.url }}/assets/penee3.png) _____hm.87
+![penee3](http://{{ site.url }}/assets/penee3.png) @_____hm.87
 
 Khi chụp máy, chỉ cần điều chỉnh ISO, khẩu và tốc sẽ tự động theo hệ đo sáng của máy (khi chụp trong điều kiện ánh sáng thấp, quá tối, một lá cờ đỏ sẽ hiển thị trong kính ngắm.) Khoảng cách lấy nét gần nhất của lens là 60cm, đừng chụp quá gần là được. Khi chụp tớ lấy chiều dài cánh tay để xác định cực cận. Khá thành công :)).
 
