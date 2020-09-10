@@ -38,8 +38,7 @@ camp không :v
 
 ![000060](http://{{ site.url }}/assets/000060.JPG)
 
-Olympus Pen EE3, I hope that you will still bring me the joy of seeing, shedding light on the poetry of daily banality.
+"Olympus Pen EE3, I hope that you will still bring me the joy of seeing, shedding light on the poetry of daily banality."
 
-I’m #teamhalframe!!!
 
-Cảm ơn mọi người đã đọc bài :))
+Cảm ơn mọi người đã đọc bài :)) <i class="em em-kissing_smiling_eyes" aria-role="presentation" aria-label="KISSING FACE WITH SMILING EYES"></i>
