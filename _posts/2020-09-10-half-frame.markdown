@@ -14,7 +14,7 @@ Thói quen, tớ la liếm research trên mạng, đọc và hiểu cách dùng 
 
 Khi chụp máy, chỉ cần điều chỉnh ISO, khẩu và tốc sẽ tự động theo hệ đo sáng của máy (khi chụp trong điều kiện ánh sáng thấp, quá tối, một lá cờ đỏ sẽ hiển thị trong kính ngắm.) Khoảng cách lấy nét gần nhất của lens là 60cm, đừng chụp quá gần là được. Khi chụp tớ lấy chiều dài cánh tay để xác định cực cận. Khá thành công :)).
 
-Với 1 cặp hình, ta sẽ phải lập kế hoạch cho nó, thể hiện 2 góc nhìn của cùng một đối tượng, toàn và cận, trước và sau, đối lập hay tương đồng. Điều đó khiến tớ phải suy nghĩ trước khi bấm thay vì chỉ ngắm và chụp :)).
+Với 1 cặp hình, ta sẽ phải lập kế hoạch cho nó, thể hiện 2 góc nhìn của cùng một đối tượng, toàn và cận, trước và sau, đối lập hay tương đồng. Điều đó khiến tớ phải suy nghĩ trước khi bấm thay vì chỉ ngắm và chụp.
 
 ![000005](http://{{ site.url }}/assets/000005.JPG)
 
