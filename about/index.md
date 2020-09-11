@@ -5,12 +5,11 @@ title: Về tôi
 
 Chào bạn, 
 
-Tớ là Đàn, đang là sinh viên, tớ dân xứ nhãn.
-Tớ là trai thẳng, thích những đồ retro.
-Tớ thích phim ảnh, lượn lờ và mê cà phê.
-Tớ viết về mọi thứ ngẫu nhiên không sẵn plan.
-Tớ viết hơi non, câu chữ lủng củng, đừng cười nhé :)) 
-Have a good day!!!
+Tớ là Đàn, đang là sinh viên, tớ dân xứ nhãn, trai thẳng.
+Tớ thích những đồ retro, thích phim ảnh, lượn lờ và mê cà phê.
+Tớ viết về những thứ ngẫu nhiên bản thân tớ trải nghiệm.
+Tớ viết, câu chữ lủng củng, đừng cười nhé :)) 
+Thank you!!! Have a good day!!!
 
 
 
