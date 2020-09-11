@@ -14,7 +14,7 @@ Tôi thích phim ảnh, lượn lờ và mê cà phê.
 
 ## Của tôi 
 
-- facebook - [facebook](https://www.facebook.com/danxii26)
-- instagram - [instagram](https://www.instagram.com/___n.f.a.d.d/)
-- [skype - ]
+- [đây là facebook](https://www.facebook.com/danxii26)
+- [đây là instagram](https://www.instagram.com/___n.f.a.d.d/)
+- skype
 
