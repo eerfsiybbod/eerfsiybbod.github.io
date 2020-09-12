@@ -4,11 +4,11 @@ title:  "Half frame, gà mờ"
 date:   2020-09-10
 ---
 
-Đây không phải bài review máy ảnh, đây trải nghiệm lần đầu của tớ với chiếc half frame.
+Lưu ý, đây không phải bài review máy ảnh, đây trải nghiệm lần đầu của tớ với chiếc half frame :))
 
 Phải nói, trước đó tớ chỉ biết đến và chụp máy SLR, con máy đầu tiên tớ dùng là Canon AE1, nó khá dễ chụp cho người mới, lấy nét hoa dâu. Tình cờ một hôm lướt facebook thấy có quả post của một bạn trong nhóm chụp ảnh phim, thấy ảnh ra bổ đôi nhìn cool cool, đọc thêm thì tớ biết bạn đó dùng máy half frame, nghe hay hay :v.
 
-Thói quen, tớ la liếm research trên mạng, đọc và hiểu cách dùng máy half frame, xem ảnh chụp từ máy trên [instagram](https://www.instagram.com/explore/tags/halfframe/). Tớ thích cách sáng tạo việc ghép nối các hình ảnh với nhau, máy nhỏ gọn và tất nhiên là cả vụ 72 tấm / cuộn 36 (>72 nếu may mắn), điều mà một đứa phá phim như tớ expect.
+Thói quen, tớ research trên mạng, đọc và hiểu cách dùng máy half frame, xem ảnh chụp từ máy trên [instagram](https://www.instagram.com/explore/tags/halfframe/). Tớ thích cách sáng tạo việc ghép nối các hình ảnh với nhau, máy nhỏ gọn và tất nhiên là cả vụ 72 tấm / cuộn 36 (>72 nếu may mắn), điều mà một đứa phá phim như tớ expect.
 
 Với khoản tiết kiệm còn dư, tớ đã "trộm" một em Olympus Pen EE3 để thử cảm giác mới hơn với việc chụp phim, với chiếc máy ảnh full cơ và zone focus, ngầu và đẹp trai hơn nữa :)) (ban đầu tớ ngắm em Olympus Pen S nhưng chả biết vì lý do gì tớ đã đặt Olympus Pen EE3.)
 
