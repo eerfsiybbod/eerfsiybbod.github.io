@@ -22,17 +22,17 @@ Với 1 cặp hình, ta sẽ phải lập kế hoạch cho nó, thể hiện 2 g
 
 ![000004](http://{{ site.url }}/assets/000004.JPG)
 
-Kodak Color Plus 200 chụp trong nhà khá ngon :))
+Kodak Color Plus 200 film :))
 
 ![000003](http://{{ site.url }}/assets/000003.JPG)
 
-Chụp gần lên máy không focus được ly cafe :3
+Chụp gần lên máy bị out focus :3
 
 ![000048](http://{{ site.url }}/assets/000048.JPG)
 
 ![000039](http://{{ site.url }}/assets/000039.JPG)
 
-camp không :v
+mấy chiếc ảnh camp. 
 
 ![000043](http://{{ site.url }}/assets/000043.JPG)
 
