@@ -18,11 +18,13 @@ Khi chụp máy, chỉ cần điều chỉnh ISO, khẩu và tốc sẽ tự đ�
 
 Với 1 cặp hình, ta sẽ phải lập kế hoạch cho nó, thể hiện 2 góc nhìn của cùng một đối tượng, toàn và cận, trước và sau, đối lập hay tương đồng. Điều đó khiến tớ phải suy nghĩ trước khi bấm thay vì chỉ ngắm và chụp.
 
+Tớ giới thiệu vài tấm cuộn phim đầu tớ chụp máy :)) 
+
 ![000005](http://{{ site.url }}/assets/000005.JPG)
 
 ![000004](http://{{ site.url }}/assets/000004.JPG)
 
-Kodak Color Plus 200 film :))
+phim Kodak Color Plus 200.
 
 ![000003](http://{{ site.url }}/assets/000003.JPG)
 
