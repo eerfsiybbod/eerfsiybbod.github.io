@@ -10,7 +10,7 @@ Phải nói, trước đó tớ chỉ biết đến và chụp máy SLR, con má
 
 Thói quen, tớ research trên mạng, đọc và hiểu cách dùng máy half frame, xem ảnh chụp từ máy trên [instagram](https://www.instagram.com/explore/tags/halfframe/). Tớ thích cách sáng tạo việc ghép nối các hình ảnh với nhau, máy nhỏ gọn và tất nhiên là cả vụ 72 tấm / cuộn 36 (>72 nếu may mắn), điều mà một đứa phá phim như tớ expect.
 
-Với khoản tiết kiệm còn dư, tớ đã "trộm" một em Olympus Pen EE3 để thử cảm giác mới hơn với việc chụp phim, với chiếc máy ảnh full cơ và zone focus, ngầu và đẹp trai hơn nữa :)) (ban đầu tớ ngắm em Olympus Pen S nhưng chả biết vì lý do gì tớ đã đặt Olympus Pen EE3.)
+Với khoản tiết kiệm còn dư, tớ đã "trộm" một em Olympus Pen EE3 để thử cảm giác mới hơn với việc chụp phim, với chiếc máy ảnh full cơ (cũng không hẳn vi máy có hệ đo sáng) và zone focus, ngầu và đẹp trai hơn nữa :)). Ban đầu tớ ngắm em Olympus Pen S (full cơ hoàn toàn, không hỗ trợ đo sáng, trải nghiệm sẽ thú vị hơn nữa) nhưng chả biết vì lý do gì tớ đã đặt Olympus Pen EE3.
 
 ![penee3](http://{{ site.url }}/assets/penee3.png) @_____hm.87
 
