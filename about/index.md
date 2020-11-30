@@ -3,14 +3,13 @@ layout: post
 title: Về tôi 
 ---
 
-Chào bạn, 
+Hello!
 
-Tớ là Đàn, dân xứ nhãn, trai thẳng, một Potterhead chính hiệu :)).
-Tớ thích những đồ retro, thích phim ảnh, lượn lờ và mê cà phê.
-Tớ viết về những thứ ngẫu nhiên bản thân tớ trải nghiệm.
-Tớ viết, câu chữ lủng củng, đừng cười nhé!
+I'm Dan, a native of longan, straight boy, a genuine Potterhead :)).
+I like retro stuff, like movies, hang around and love coffee.
+I write about random things that I personally experience.
+I write, the words are not good, don't laugh!
 Thank you! Have a good day!
-
 
 
 ------------------
