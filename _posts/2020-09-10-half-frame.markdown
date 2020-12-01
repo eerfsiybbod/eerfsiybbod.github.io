@@ -8,7 +8,7 @@ Note, this is not a camera review, here is my first time experience with a half 
 
 Must say, before that I only know about and shoot SLR, the first camera I used was Canon AE1, it was quite easy to shoot for novices, focusing on strawberry flowers. One day when I read facebook, I saw a post of a friend in the film photography group, saw the picture showing cool and cool look, read more, I know that she used a half frame machine. Sounds good!
 
-Habit, I research online, read and understand how to use a half frame machine, see pictures taken from the camera on [instagram](https://www.instagram.com/explore/tags/halfframe/). I like the creative way of stitching images together, the camera is compact and of course, the case of 72 sheets/roll 36 (> 72 if lucky), what a movie breaker like I expect.
+Habit, I sought online, read and understand how to use a half frame machine, see pictures taken from the camera on [instagram](https://www.instagram.com/explore/tags/halfframe/). I like the creative way of stitching images together, the camera is compact and of course, the case of 72 sheets/roll 36 (> 72 if lucky), what a movie breaker like I expect.
 
 With the remaining savings, I "stole" an Olympus Pen EE3 to try a new feel with movie shooting, with a full mechanical camera (not really because it has metering system) and zone focus, cool. and more handsome !. At first I looked at the Olympus Pen S (full mechanical, no metering support, the experience will be even more interesting) but for some reason I ordered the Olympus Pen EE3.
 
